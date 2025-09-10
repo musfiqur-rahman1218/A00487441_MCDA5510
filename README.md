@@ -1,1 +1,2 @@
-# A00487441_MCDA5510
+Hi, my name is Md. Musfiqur Rahman (A00487441). You can reach me at md.musfiqur.rahman@smu.ca
+. I’m really interested in quantum computing and how it could change the future of problem-solving. A fun fact about me is that I enjoy playing football and cricket in my free time.
